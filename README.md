@@ -1,0 +1,1 @@
+# 12variant_diploma
